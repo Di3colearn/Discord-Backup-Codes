@@ -115,4 +115,20 @@
 
 
 
+<div align="center">
+
+# 🌵 پایان مقاله 🌵
+</div>
+
+<br>
+<br>
+امیدوارم این مقاله برای شما کاربردی باشه، ممنون میشم برای پیشرفت ما گیتهاب ما رو فالو کنید و به مقاله استار ⭐ دهید
+<br>
+<br>
+
+
+🌱 Discord Server : https://discord.gg/w7zuNHsenD <br>
+[![Discolearn Discord](https://badgen.net/discord/members/w7zuNHsenD)](https://discord.gg/w7zuNHsenD)
+
+
 </div>
