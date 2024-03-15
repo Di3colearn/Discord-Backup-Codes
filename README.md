@@ -1,1 +1,14 @@
-# Discord-Backup-Codes
+# آموزش بدست آوردن بکاپ کد دیسکورد
+<div dir="auto">
+
+<p align="center">
+  <img src="https://i8.ae/kkDGi" />
+# آموزش بدست آوردن بکاپ کد دیسکورد
+
+</p>
+<div align="center">
+# آموزش بدست آوردن بکاپ کد دیسکورد
+</div>
+
+</div>
+# آموزش بدست آوردن بکاپ کد دیسکورد
