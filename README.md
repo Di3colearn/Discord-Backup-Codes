@@ -127,8 +127,8 @@
 <br>
 
 
-🌱 Discord Server : https://discord.gg/w7zuNHsenD <br>
-[![Discolearn Discord](https://badgen.net/discord/members/w7zuNHsenD)](https://discord.gg/ydtUCYUnKU)
+🌱 Discord Server : https://discord.gg/ydtUCYUnKU <br>
+[![Discolearn Discord](https://badgen.net/discord/members/ydtUCYUnKU)](https://discord.gg/ydtUCYUnKU)
 
 
 </div>
